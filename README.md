@@ -1,6 +1,1 @@
-# praticehsdhhhhhhhhhhh:ssua sai 
-
-minh
-
-aaaa
- commit
+Thành mới sửa nek
