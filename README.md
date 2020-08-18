@@ -1,6 +1,3 @@
-# praticehsdhhhhhhhhhhh:ssua sai 
+# pratice
 
-minh
-
-aaaa
- commit
+vinv
