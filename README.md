@@ -1,6 +1,1 @@
 
-# pratice
-
-vinv
-
-Dat Nguyen
