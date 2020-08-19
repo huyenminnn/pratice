@@ -1,6 +1,2 @@
-# praticehsdhhhhhhhhhhh:ssua sai 
-
-minh
-
-aaaa
- commit
+# pratice: Practic git
+Son
