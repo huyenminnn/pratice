@@ -1,6 +1,13 @@
 # praticehsdhhhhhhhhhhh:ssua sai 
-
-minh
+B
+B
+B
+B
+B
+B
+B
+C
+inh
 
 aaaa
  commit
